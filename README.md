@@ -9,7 +9,7 @@
 
 ![image](https://user-images.githubusercontent.com/118244660/202374030-96e6a848-f36e-4868-8bf4-1c08fda0c2bb.png)
 
-[Get to know the Eraserheads!](https://en.wikipedia.org/wiki/Eraserheads)
+[`Get to know the Eraserheads!`](https://en.wikipedia.org/wiki/Eraserheads)
 
 ## List of  my personal favorites!!
 1. Tindahan ni aling nena 
