@@ -41,6 +41,6 @@
 
 [`Their best hits are a click away!`](https://youtu.be/cwgYLfxOync)
 ---
-# 2007 APO HIKINH SOCIETY CONCERT
+# 2007 APO HIKING SOCIETY CONCERT
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/D_qqWtciCUo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
