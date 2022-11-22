@@ -1,4 +1,4 @@
-# Welcome To  **GAB** **BOTOR'S** **GITHUB** **PAGE**
+# Welcome To  **THE** **MUSIC** **BOX** 
 ### Hi! I'm **Gabriel Norman Botor**, a big OPM fan, especially in the band, **Eraserheds.** I'll show you a brief background on the **Greatest** Bands of the Philippines
 ---
 **MUSIC** **BOX**
@@ -31,3 +31,11 @@
 ![image](https://user-images.githubusercontent.com/118244660/203221410-3e502198-931b-4c7a-893c-e5f788cd20c3.png)
 
 [`Get to know more of Apo Hiking society, here!`](https://en.wikipedia.org/wiki/APO_Hiking_Society)
+
+## List of my personal favorites 
+1. Ewan
+2. Awit ng barkada
+3. Pumapatak ang ulan 
+4. Batang-bata ka pa 
+5. Panalangin
+[`Their best hits are a click away!`](<iframe width="560" height="315" src="https://www.youtube.com/embed/cwgYLfxOync" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
