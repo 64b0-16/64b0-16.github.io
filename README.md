@@ -9,7 +9,7 @@
 
 ![image](https://user-images.githubusercontent.com/118244660/202374030-96e6a848-f36e-4868-8bf4-1c08fda0c2bb.png)
 
-[`Get to know the Eraserheads!`](https://en.wikipedia.org/wiki/Eraserheads)
+[`Get to know the Eraserheads more, here!`](https://en.wikipedia.org/wiki/Eraserheads)
 
 ## List of  my personal favorites!!
 1. Tindahan ni aling nena 
@@ -23,3 +23,10 @@
 # Eraserheads: The Reunion Concert 08.30.08 one of the most iconic concerts they done or the public
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/WAvJvAOAkDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+---
+**APO** **HIKING** **SOCIETY**
+
+-The Apolinario Mabini Hiking Society, later popularly known as APO Hiking Society, or simply APO, was a Filipino musical group and one of the pillars of Original Pilipino Music (OPM) composed of Danny Javier†, Jim Paredes, and Boboy Garrovillo. [2] The group had its fledgling beginnings in 1969 at the Ateneo de Manila high school, with 15 members 
+
+![image](https://user-images.githubusercontent.com/118244660/203221410-3e502198-931b-4c7a-893c-e5f788cd20c3.png)
+[`Get to know more of Apo Hiking society, here!`] https://en.wikipedia.org/wiki/APO_Hiking_Society
