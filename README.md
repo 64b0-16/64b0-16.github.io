@@ -1,5 +1,5 @@
 # Welcome To  **GAB** **BOTOR'S** **GITHUB** **PAGE**
-### Hi! I'm **Gabriel Norman Botor**, a big OPM fan, especially in the band, **Eraserheds.** I'll show you a brief background on the **Greatest** Rock Bands of the Philippines
+### Hi! I'm **Gabriel Norman Botor**, a big OPM fan, especially in the band, **Eraserheds.** I'll show you a brief background on the **Greatest** Bands of the Philippines
 ---
 **MUSIC** **BOX**
 
