@@ -38,4 +38,5 @@
 3. Pumapatak ang ulan 
 4. Batang-bata ka pa 
 5. Panalangin
-[`Their best hits are a click away!`](<iframe width="560" height="315" src="https://www.youtube.com/embed/cwgYLfxOync" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+
+[`Their best hits are a click away!`](https://youtu.be/cwgYLfxOync)
