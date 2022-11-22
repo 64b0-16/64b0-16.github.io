@@ -29,4 +29,5 @@
 -The Apolinario Mabini Hiking Society, later popularly known as APO Hiking Society, or simply APO, was a Filipino musical group and one of the pillars of Original Pilipino Music (OPM) composed of Danny Javier†, Jim Paredes, and Boboy Garrovillo. [2] The group had its fledgling beginnings in 1969 at the Ateneo de Manila high school, with 15 members 
 
 ![image](https://user-images.githubusercontent.com/118244660/203221410-3e502198-931b-4c7a-893c-e5f788cd20c3.png)
+
 [`Get to know more of Apo Hiking society, here!`](https://en.wikipedia.org/wiki/APO_Hiking_Society)
