@@ -5,7 +5,7 @@
 
 **ERASERHEADS** 
 
--Eraserheads (sometimes stylized as ERASƎRHEADS or ƎRASƎRHƎADS) are a Filipino alternative rock band formed in 1989. With a line-up comprising Ely Buendia, Buddy Zabala, Marcus Adoro, and Raimund Marasigan, the band became one of the most influential and successful in the history of Filipino music. Often dubbed as =="The Beatles of the Philippines"==
+-Eraserheads (sometimes stylized as ERASƎRHEADS or ƎRASƎRHƎADS) are a Filipino alternative rock band formed in 1989. With a line-up comprising Ely Buendia, Buddy Zabala, Marcus Adoro, and Raimund Marasigan, the band became one of the most influential and successful in the history of Filipino music. Often dubbed as **"The Beatles of the Philippines"**
 
 ![image](https://user-images.githubusercontent.com/118244660/202374030-96e6a848-f36e-4868-8bf4-1c08fda0c2bb.png)
 
@@ -18,7 +18,7 @@
 4. Ligaya 
 5. Toyang 
 
-[`Listen to them here!`](https://youtu.be/7JQfJQKxH9E)
+[`Listen to their best hits here!`](https://youtu.be/7JQfJQKxH9E)
 ---
 # Eraserheads: The Reunion Concert 08.30.08 one of the most iconic concerts they done or the public
 
