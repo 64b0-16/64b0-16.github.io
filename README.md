@@ -20,7 +20,7 @@
 
 [`Listen to their best hits here!`](https://youtu.be/7JQfJQKxH9E)
 ---
-# Eraserheads: The Reunion Concert 08.30.08 one of the most iconic concerts they done or the public
+# Eraserheads: The Reunion Concert 08.30.08 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/WAvJvAOAkDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 ---
@@ -40,3 +40,7 @@
 5. Panalangin
 
 [`Their best hits are a click away!`](https://youtu.be/cwgYLfxOync)
+---
+# 2007 APO HIKINH SOCIETY CONCERT
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/D_qqWtciCUo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
