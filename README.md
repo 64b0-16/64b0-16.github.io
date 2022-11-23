@@ -1,7 +1,7 @@
 # Welcome To  **THE** **MUSIC** **BOX** 
 ### Hi! I'm **Gabriel Norman Botor**, a big OPM fan, especially in the band, **Eraserheds.** I'll show you a brief background on the **Greatest** Bands of the Philippines
 
-### Listen to my personal playlist below!!
+## Listen to my personal playlist below!!
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/5Pjjma1WoQLqYZmUYCpoD6?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 ---
